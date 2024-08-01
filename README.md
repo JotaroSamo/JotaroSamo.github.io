@@ -1,1 +1,1 @@
-JotaroSamo.github.io
+JotaroSamoCVRU.github.io
